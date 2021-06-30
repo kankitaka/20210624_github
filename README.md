@@ -1,1 +1,2 @@
-hogepiyo by ichimura
+hogepiyo by kotake
+
